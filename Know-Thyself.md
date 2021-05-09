@@ -1,5 +1,6 @@
 # Know Thyself
 The Veda, Moses, Buddha, Christ, Platon, Benjamin Franklin and even the Wachowski's knew and told about the ultimate challenge and most pious project in life. To know thyself.
+What does it mean today?
 
 *Once upon a time, in the early 70s when Zen Buddhism was becoming popular in the United States, there was a Zen Buddhist monk who came to this country to try and teach what Zen Buddhism was about. He was interviewed on TV by a famous journalist, let’s call him Dan Smith. Smith said to the Buddhist monk, “So you’ve traveled all around the world teaching Zen Buddhism. What is the most disgusting thing you’ve ever seen?” The Buddhist monk smiled his Zen smile and asked, “Who are you?” Smith, taken aback, replied, “A newspaper reporter…I’m interviewing you?” And the little Buddhist monk smiled and said, “No, no, no, no. Who are you?” At this point, Smith was a little annoyed— he was on national television and was getting fed up. He turned to the Buddhist monk and said, “Look, I’m a father, a husband, a son, I’m a newspaper reporter.” And the Zen little Buddhist monk once again asked, “Who are you?” Dan Smith was completely terrified at this point. He said, “Look, I don’t know, just answer my question.” The Buddhist monk replied, “That is the most disgusting thing I’ve ever seen – someone who doesn’t know who he is.”*
 
