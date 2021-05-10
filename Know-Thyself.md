@@ -4,6 +4,17 @@ What does it mean today?
 
 *Once upon a time, in the early 70s when Zen Buddhism was becoming popular in the United States, there was a Zen Buddhist monk who came to this country to try and teach what Zen Buddhism was about. He was interviewed on TV by a famous journalist, let’s call him Dan Smith. Smith said to the Buddhist monk, “So you’ve traveled all around the world teaching Zen Buddhism. What is the most disgusting thing you’ve ever seen?” The Buddhist monk smiled his Zen smile and asked, “Who are you?” Smith, taken aback, replied, “A newspaper reporter… I’m interviewing you?” And the little Buddhist monk smiled and said, “No, no, no, no. Who are you?” At this point, Smith was a little annoyed— he was on national television and was getting fed up. He turned to the Buddhist monk and said, “Look, I’m a father, a husband, a son, I’m a newspaper reporter.” And the Zen little Buddhist monk once again asked, “Who are you?” Dan Smith was completely terrified at this point. He said, “Look, I don’t know, just answer my question.” The Buddhist monk replied, “That is the most disgusting thing I’ve ever seen – someone who doesn’t know who he is.”*
 
+## "Origins"
+This doctrine of self knowledge has been a common theme across cultures from the beginning of thought. Jewish, Christian, Vedic and Buddhist texts stress the importance of a life with the "aim" of self knowledge.
+"Know thyself first; everything follows suit!" - a Vedic text reads:
+*"Narada asked Sage Sanatkumara to teach him.
+Sanatkumara said: ‘Say what you know: I will say what you do not.’
+Narada said:* ‘Lord, I know Rig Veda, Yajur Veda, Sama Veda, Atharvana Veda, history and tradition called the fifth Veda, grammer, ritual, mathematics, astrology, mineralogy, logic, economics, physics, meta-physics, zoology, politics, astronomy, fine arts. ‘Lord, yet these things are but elementary knowledge; I do not know the Self. I have heard from masters, that he who knows Self, goes beyond sorrow, I am lost in sorrow. Help me to go beyond’.*
+Who really first came across this doctrine is hard to say as the dating methods of written texts are not that precise and oral tradition dating techniques are much more oblique.
+What is apparent however is that it stretches from Asia through the middle east and Africa over to Europe. Where it was picked up in Greece and spawned the quest for knowledge of self in the West.
+
+from [Here](https://tamilandvedas.com/tag/know-thyself/)
+
 ## "The Greek & the west"
 - gnōthi seauton ( γνῶθι σεαυτόν ), prominent usage in west in Greece
 - inscirbed as first maxime (of 3) in temple of Apollo in Delphi
@@ -12,16 +23,6 @@ What does it mean today?
   - also in The Art of War, the maxim 知彼知己，百战不殆 means "know others and know thyself, and you will not be endangered by innumerable battles". In this saying by Sun Zi (孙子, Sun Tze), the idea of knowing oneself is paramount.
 
 from [Wikipedia](https://en.wikipedia.org/wiki/Know_thyself) 
-
-## "Origins"
-
-This doctrine of self knowledge has been a common theme across cultures from the beginning of thought. Jewish, Christian, Vedic and Buddhist texts stress the importance of a life with the "aim" of self knowledge.
-"Know thyself first; everything follows suit!" - a Vedic text reads:
-*"Narada asked Sage Sanatkumara to teach him.
-Sanatkumara said: ‘Say what you know: I will say what you do not.’
-Narada said:* ‘Lord, I know Rig Veda, Yajur Veda, Sama Veda, Atharvana Veda, history and tradition called the fifth Veda, grammer, ritual, mathematics, astrology, mineralogy, logic, economics, physics, meta-physics, zoology, politics, astronomy, fine arts. ‘Lord, yet these things are but elementary knowledge; I do not know the Self. I have heard from masters, that he who knows Self, goes beyond sorrow, I am lost in sorrow. Help me to go beyond’.*
-
-from [Here](https://tamilandvedas.com/tag/know-thyself/)
 
 ## A spiritual drought
 
