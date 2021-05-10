@@ -20,6 +20,8 @@ However this doctrin of self knowledge is common theme around the globe and from
 *"Narada asked Sage Sanatkumara to teach him.
 Sanatkumara said : ‘Say what you know: I will say what you do not’
 Narada said:* ‘Lord, I know Rig Veda, Yajur Veda, Sama Veda, Atharvana Veda, history and tradition called the fifth Veda, grammer,  ritual, mathematics, astrology, mineralogy, logic, economics, physics, meta-physics, zoology, politics, astronomy, ,ecjamocs, fine arts.    ‘Lord, yet these things are but elementary knowledge; I do not know the Self. I have heard from masters, that he who knows Self, goes beyond sorrow, I am lost in sorrow. Help me to go beyond’.*
+Who really first came across this doctrine is hard to say as the dating methods of written texts are not that precise and oral tradition dating techniques are much more oblique.
+What is apparent however is that it stretches from Asia through the middle east and Africa over to Europe. Where it was picked up in Greece and spawned the quest for knowledge of self in the West.
 
 from [Here](https://tamilandvedas.com/tag/know-thyself/)
 
