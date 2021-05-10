@@ -13,22 +13,22 @@ Narada said:* ‘Lord, I know Rig Veda, Yajur Veda, Sama Veda, Atharvana Veda, h
 Who really first came across this doctrine is hard to say as the dating methods of written texts are not that precise and oral tradition dating techniques are much more oblique.
 What is apparent however is that it stretches from Asia through the middle east and Africa over to Europe. Where it was picked up in Greece and spawned the quest for knowledge of self in the West.
 
-from [Here](https://tamilandvedas.com/tag/know-thyself/)
+[Source](https://tamilandvedas.com/tag/know-thyself/)
 
-## "The Greek & the west"
+## "The Greeks & the West"
 - gnōthi seauton ( γνῶθι σεαυτόν ), prominent usage in west in Greece
 - inscirbed as first maxime (of 3) in temple of Apollo in Delphi
 - Western lineage: Sokrates -> Plato -> ... -> Thomas Hobbes "The Leviathan": Read Thyself, signaling that reading one self one can acquire higher and more profound wisdom than when reading books ->
 ... -> Benjamin Franklin "There are three Things extremely hard, Steel, a Diamond, and to know one's self."[29] -> The Matrix (over Oracle door)
   - also in The Art of War, the maxim 知彼知己，百战不殆 means "know others and know thyself, and you will not be endangered by innumerable battles". In this saying by Sun Zi (孙子, Sun Tze), the idea of knowing oneself is paramount.
 
-from [Wikipedia](https://en.wikipedia.org/wiki/Know_thyself) 
+[Source](https://en.wikipedia.org/wiki/Know_thyself) 
 
 ## A spiritual drought
 
 When did we stop listening to the great minds and start looking for answers outside of ourselves? Is it due to our hardened dualistic thinking patterns, separating mind from matter? Would it help to break up these patterns from time to time and acquire a more holistic view or experience?
 
-Maimonides (or Rambam), one of the old Jewish sages and great commentators on the [Mishna](https://en.wikipedia.org/wiki/Mishna) (the first written Torah after centuries of oral tradition) interpreted the first commandment as the law to "Know Yourself."
+Maimonides (or Rambam), one of the old Jewish sages and great commentators on the [Mishna](https://en.wikipedia.org/wiki/Mishna) (the first written Torah after centuries of oral tradition), interpreted the first commandment as the law to "Know Yourself."
 
 Google translation of [Rambam on Ignorance of Self:](http://www.mesora.org/KnowThyself.html)
 *"[...]And just as the physician, who will heal the bodies, must first know the body that will heal him in general and his parts - what they are, I want to say the human body, and he must know what things will begin and keep them, and what things will heal him and direct them [...]"*
@@ -56,9 +56,6 @@ gives insight into a practical path to self knowledge that is very accessible to
 
 ## "Ending"
 So why then, since the beginning of thought, have we had the urge to "Know Thysef"? Might it be that within us lies an answer so powerful and life-changing, that it's difficult to imagine, let alone attempt to realize? Let us try together, while creating something meaningful along the way.
-- (Human Design, ...)
-- (where to go from here?, say more?)
 
- 
 *“We are not human beings having a spiritual experience. We are spiritual beings having a human experience.”* - Teilhard de Chardin
 
