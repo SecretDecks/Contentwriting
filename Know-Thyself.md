@@ -16,8 +16,7 @@ Narada said: *“Lord, I know Rig Veda, Yajur Veda, Sama Veda, Atharvana Veda, h
 
 In the Tao Te Ching, [Lao Tzu wrote](https://www.with.org/tao_te_ching_en.pdf), *“Knowing others is intelligence; knowing yourself is true wisdom. Mastering others is strength; mastering yourself is true power.”*
 
-In Buddhism, to know thyself is one of the [keys to enlightenment](https://iconoclasses.com/2019/09/20/socrates-and-buddha-know-thyself/):   
-*“For the Buddha, ultimate reality is a process of self-realization. Nobody is going to save you. The only person that can liberate you from your own pain and suffering is yourself, and the only person that is going to take the consequences of your own bad acts and misjudgment is also yourself.”*
+In Buddhism, to know thyself is one of the [keys to enlightenment](https://iconoclasses.com/2019/09/20/socrates-and-buddha-know-thyself/): *“For the Buddha, ultimate reality is a process of self-realization. Nobody is going to save you. The only person that can liberate you from your own pain and suffering is yourself, and the only person that is going to take the consequences of your own bad acts and misjudgment is also yourself.”*
 
 In monotheistic religions, self-knowledge also played a role in one’s spiritual path. 
 Maimonides (or Rambam), one of the old Jewish sages and great commentators on the [Mishna](https://en.wikipedia.org/wiki/Mishna) (the first written Torah after centuries of oral tradition), interpreted the first commandment as the law to "Know Yourself."
