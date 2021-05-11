@@ -14,7 +14,7 @@ This doctrine of self-knowledge has been a common theme across cultures from the
 Sanatkumara said: ‘Say what you know: I will say what you do not.”
 Narada said: *“Lord, I know Rig Veda, Yajur Veda, Sama Veda, Atharvana Veda, history and tradition called the fifth Veda, grammer, ritual, mathematics, astrology, mineralogy, logic, economics, physics, meta-physics, zoology, politics, astronomy, fine arts. Lord, yet these things are but elementary knowledge; I do not know the Self. I have heard from masters, that he who knows Self, goes beyond sorrow, I am lost in sorrow. Help me to go beyond.”*
 
-In the Tao Te Ching, [Lao Tzu wrote] (https://www.with.org/tao_te_ching_en.pdf}, *“Knowing others is intelligence; knowing yourself is true wisdom. Mastering others is strength; mastering yourself is true power.”*
+In the Tao Te Ching, [Lao Tzu wrote] (https://www.with.org/tao_te_ching_en.pdf), *“Knowing others is intelligence; knowing yourself is true wisdom. Mastering others is strength; mastering yourself is true power.”*
 
 In Buddhism, to know thyself is one of the [keys to enlightenment] (https://iconoclasses.com/2019/09/20/socrates-and-buddha-know-thyself/):   
 *“For the Buddha, ultimate reality is a process of self-realization. Nobody is going to save you. The only person that can liberate you from your own pain and suffering is yourself, and the only person that is going to take the consequences of your own bad acts and misjudgment is also yourself.”*
