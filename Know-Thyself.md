@@ -58,7 +58,7 @@ The practice of Svādhyāya (knowing oneself) is foundational in yogic tradition
 
 Hindu sage [Ramana Maharshi](https://www.sriramanamaharshi.org/teachings/instructions/) focused much of his work on Vichara, "Self-enquiry", the constant attention to the inner awareness of "I" or "I am."
 
-In his 1980 book, [Man Know Thyself](https://www.lightparty.com/Spirituality/ManKnowThyself/ManKnowThyself.html), Raphael Ornstein M.D. gives insight into a practical path to self-knowledge that is very accessible to the analytical Western mind, involving Qabbalah and also the Tarot. The tarot cards are often seen as a mirror of what you are experiencing in your life, encouraging self-reflection and contemplation. They can be a powerful tool our modern-day quest to “Know Thyself.”
+In his 1980 book, [Man Know Thyself](https://www.lightparty.com/Spirituality/ManKnowThyself/ManKnowThyself.html), Raphael Ornstein M.D. gives insight into a practical path to self-knowledge that is very accessible to the analytical Western mind, involving Qabbalah and also the Tarot. The tarot cards are often seen as a mirror of what you are experiencing in your life, encouraging self-reflection and contemplation. They can be a powerful tool to our modern-day quest to “Know Thyself.”
 
 ## "Ending"
 
