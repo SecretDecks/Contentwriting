@@ -34,7 +34,7 @@ Who really first came up with this doctrine is hard to say, as the dating method
 
 Greek philosophy laid the basis for Western thought, with the adage “Know Thyself” (γνῶθι σεαυτόν or *gnōthi seauton* in Greek), influencing thinkers from Thomas Hobbes to Benjamin Franklin. The [saying](https://arkintime.com/know-thyself/history/) was inscribed at the Temple of Apollo at Delphi (or the Oracle of Delphi) wrote Pausanias, and later adopted by Socrates and Plato. 
 
-Centuries later, in 1651, Thomas Hobbes expanded on “Know Thyself” by introducing the concept of nosce teipsum "Read Thyself" in *[The Leviathan](https://web.archive.org/web/20101127130924/http://oregonstate.edu/instruct/phl302/texts/hobbes/leviathan-contents.html).* He argued that we can learn more by studying ourselves – our feelings, thoughts, motives, etc. - than looking to others.  
+Centuries later, in 1651, Thomas Hobbes expanded on “Know Thyself” by introducing the concept of *nosce teipsum* "Read Thyself" in *[The Leviathan](https://web.archive.org/web/20101127130924/http://oregonstate.edu/instruct/phl302/texts/hobbes/leviathan-contents.html).* He argued that we can learn more by studying ourselves – our feelings, thoughts, motives, etc. - than looking to others.  
 
 *"But to teach us that for the similitude of the thoughts and passions of one man, to the thoughts and passions of another, whosoever looketh into himself and considereth what he doth when he does think, opine, reason, hope, fear, etc., and upon what grounds; he shall thereby read and know what are the thoughts and passions of all other men upon the like occasions."*
 
