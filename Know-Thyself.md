@@ -32,7 +32,7 @@ Who really first came up with this doctrine is hard to say, as the dating method
 
 ## "From Ancient Greece, across the West"
 
-Greek philosophy laid the basis for Western thought, with the adage “Know Thyself” (γνῶθι σεαυτόν or gnōthi seauton in Greek), influencing thinkers from Thomas Hobbes to Benjamin Franklin. The [saying](https://arkintime.com/know-thyself/history/) was inscribed at the Temple of Apollo at Delphi (or the Oracle of Delphi) wrote Pausanias, and later adopted by Socrates and Plato. 
+Greek philosophy laid the basis for Western thought, with the adage “Know Thyself” (γνῶθι σεαυτόν or *gnōthi seauton* in Greek), influencing thinkers from Thomas Hobbes to Benjamin Franklin. The [saying](https://arkintime.com/know-thyself/history/) was inscribed at the Temple of Apollo at Delphi (or the Oracle of Delphi) wrote Pausanias, and later adopted by Socrates and Plato. 
 
 Centuries later, in 1651, Thomas Hobbes expanded on “Know Thyself” by introducing the concept of nosce teipsum "Read Thyself" in *[The Leviathan](https://web.archive.org/web/20101127130924/http://oregonstate.edu/instruct/phl302/texts/hobbes/leviathan-contents.html).* He argued that we can learn more by studying ourselves – our feelings, thoughts, motives, etc. - than looking to others.  
 
@@ -40,7 +40,7 @@ Centuries later, in 1651, Thomas Hobbes expanded on “Know Thyself” by introd
 
 Benjamin Franklin elucidated the [complexity of knowing oneself](https://books.google.de/books?id=MYkTAQAAMAAJ&dq=Autobiography,+Sayings+of+Poor+Richard,+Letters&pg=PA195&redir_esc=y#v=onepage&q&f=false), comparing it to the impenetrability of steel and diamonds: *"There are three Things extremely hard, Steel, a Diamond, and to know one's self."*
 
-While the importance of self-inquiry has waned in recent years, we can see a [few references](https://www.youtube.com/watch?v=kl0rqoRbzzU) to the age-old quest to “Know Thyself” in popular culture. In the *Matrix* and *Matrix Revolutions*, the Wachowskis included temet nosce above the Oracle’s door, giving a nod to the Ancient Greeks. 
+While the importance of self-inquiry has waned in recent years, we can see a [few references](https://www.youtube.com/watch?v=kl0rqoRbzzU) to the age-old quest to “Know Thyself” in popular culture. In the *Matrix* and *Matrix Revolutions*, the Wachowskis included *temet nosce* (latin for "Know Thyself") above the Oracle’s door, giving a nod to the Ancient Greeks. 
 
 ## “A spiritual & philosophical drought”
 
@@ -62,7 +62,7 @@ In his 1980 book, [Man Know Thyself](https://www.lightparty.com/Spirituality/Man
 
 ## "Ending"
 
-Since the beginning of thought we have had the urge to "Know Thyself.” But why?  Might it be that within us lies an answer so powerful and life-changing, that it's difficult to imagine, let alone attempt to realize? Let us try together, while creating something meaningful along the way.
+But why since the beginning of thought have we had the urge to "Know Thyself?"  Might it be that within us lies an answer so powerful and life-changing, that it's difficult to imagine, let alone attempt to realize? Let us try together, while creating something meaningful along the way.
 
 *“He who knows others is wise; he who knows himself is enlightened.”*
 ― Lao Tzu
