@@ -11,14 +11,14 @@ This doctrine of self-knowledge has been a common theme across cultures from the
 
 *"Know thyself first; everything follows suit!"* - a [Vedic text reads:](https://tamilandvedas.com/tag/know-thyself).
 *"Narada asked Sage Sanatkumara to teach him.
-Sanatkumara said: ‘Say what you know: I will say what you do not.”
+Sanatkumara said: ‘Say what you know: I will say what you do not.'
 Narada said: *“Lord, I know Rig Veda, Yajur Veda, Sama Veda, Atharvana Veda, history and tradition called the fifth Veda, grammer, ritual, mathematics, astrology, mineralogy, logic, economics, physics, meta-physics, zoology, politics, astronomy, fine arts. Lord, yet these things are but elementary knowledge; I do not know the Self. I have heard from masters, that he who knows Self, goes beyond sorrow, I am lost in sorrow. Help me to go beyond.”*
 
 In the Tao Te Ching, [Lao Tzu wrote](https://www.with.org/tao_te_ching_en.pdf), *“Knowing others is intelligence; knowing yourself is true wisdom. Mastering others is strength; mastering yourself is true power.”*
 
 In Buddhism, to know thyself is one of the [keys to enlightenment](https://iconoclasses.com/2019/09/20/socrates-and-buddha-know-thyself/): *“For the Buddha, ultimate reality is a process of self-realization. Nobody is going to save you. The only person that can liberate you from your own pain and suffering is yourself, and the only person that is going to take the consequences of your own bad acts and misjudgment is also yourself.”*
 
-In monotheistic religions, self-knowledge also played a role in one’s spiritual path. 
+In monotheistic religions, self-knowledge has also played a role in one’s spiritual path. 
 Maimonides (or Rambam), one of the old Jewish sages and great commentators on the [Mishna](https://en.wikipedia.org/wiki/Mishna) (the first written Torah after centuries of oral tradition), interpreted the first commandment as the law to "Know Yourself."
 Translation of [Maimonides on Ignorance of Self:](http://www.mesora.org/KnowThyself.html)
 *"[...]And just as the physician, who will heal the bodies, must first know the body that will heal him in general and his parts - what they are, I want to say the human body, and he must know what things will begin and keep them, and what things will heal him and direct them [...]"*
@@ -44,7 +44,7 @@ While the importance of self-inquiry has waned in recent years, we can see a [fe
 
 ## “A spiritual & philosophical drought”
 
-We can see that throughout both Western and Eastern traditions – from the Vedas to Judeo-Christian teachings, to Western philosophy – knowing thyself has been emphasized as a way to enrich our lives and find purpose.
+We can see that throughout both Western and Eastern traditions – from the Vedas to Judeo-Christian teachings, to Western philosophy – knowing thyself has been emphasised as a way to enrich our lives and find purpose.
 
 In general though, we have abandoned the quest to turn inward and examine who we really are, instead distracting ourselves in nearly any way possible. Why have we stopped listening to the wisdom imparted to us by a rich heritage of thought that spans cultures and traditions, and started looking for answers outside of ourselves? Is it due to our hardened dualistic thinking patterns, separating mind from matter, ourselves from the other? Would it help to break up these patterns from time to time and acquire a more holistic view or experience? 
 
