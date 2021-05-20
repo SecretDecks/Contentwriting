@@ -23,13 +23,12 @@ In Buddhism, to know thyself is one of the [keys to enlightenment](https://icono
 
 In monotheistic religions, self-knowledge has also played a role in one’s spiritual path. 
 Maimonides (or Rambam), one of the old Jewish sages and great commentators on the [Mishna](https://en.wikipedia.org/wiki/Mishna) (the first written Torah after centuries of oral tradition), interpreted the first commandment as the law to "Know Yourself."
-Translation of [Maimonides on Ignorance of Self.](http://www.mesora.org/KnowThyself.html)
+
+The concept of knowing oneself extends to Islamic scripture in the quest to comprehend human emotion and become closer to Allah. In the Hadith of the Prophet Muhammed, it is [written]( https://www.hubeali.com/online-books/online-english-books/bihar-al-anwaar/): 
+*“Whosoever knows himself knows his Lord.”* Translation of [Maimonides on Ignorance of Self.](http://www.mesora.org/KnowThyself.html)
 
 Even in [Corinthians 13:5](https://www.kingjamesbibleonline.org/2-Corinthians-13-5/), self-knowledge is mentioned as the foundation of faith:
 *“Examine yourselves, whether ye be in the faith; prove your own selves. Know ye not your own selves, how that Jesus Christ is in you, except ye be reprobates?”*
-
-The concept of knowing oneself extends to Islamic scripture in the quest to comprehend human emotion and become closer to Allah. In the Hadith of the Prophet Muhammed, it is [written]( https://www.hubeali.com/online-books/online-english-books/bihar-al-anwaar/): 
-*“Whosoever knows himself knows his Lord.”* 
 
 Who really first came up with this doctrine is hard to say, as the dating methods of older written texts are not that precise and oral traditions are even more difficult to date, many of the techniques quite oblique. However who or where the inquiry came from "first" is of no relevance at all. What is important is that the concept stretches from East to West and North to South. 
 
