@@ -68,8 +68,8 @@ In his 1980 book, [Man Know Thyself](https://www.lightparty.com/Spirituality/Man
 
 ## "Ending"
 
-But why since the beginning of thought have we had the urge to "Know Thyself?"  Might it be that within us lies an answer so powerful and life-changing, that it's difficult to imagine, let alone attempt to realise? Let us try together, while creating something meaningful along the way. What that might be? Think of an autonomous organisation for creators that is self sustaining/growing and managed without hierarchy by all its participants. 
-Soon there'll be more to read on said organisation. Meanwhile it's recommended to **read thy self**
+But why since the beginning of thought have we had the urge to "Know Thyself?"  Might it be that within us lies an answer so powerful and life-changing, that it's difficult to imagine, let alone attempt to realise? Let us try together, while creating something meaningful along the way. What that might be? Think of an autonomous organisation for creators that is self sustaining/growing and managed without hierarchy by all its participants. How does this tie into Self Knowledge or something like Tarot?
+The answers can soon be read here. Meanwhile it's recommended to **read thy self**.
 
 *“He who knows others is wise; he who knows himself is enlightened.”*
 ― Lao Tzu
