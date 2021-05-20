@@ -1,6 +1,6 @@
 # “Know Thyself”
 
-What do ancient scrolls, sacred and sacral texts, scholars, thinkers and philosophers all have in common? They agree to "Know Thyself" is the ultimate challenge and most pious project in life.
+What do ancient scrolls, sacred and sacral texts, scholars, thinkers and philosophers all have in common? They agree that to "Know Thyself" is the ultimate challenge and most pious project in life.
 
 But what does it mean today and how can we reconnect with a concept that has largely been abandoned in the modern era, yet has the potential to help us understand ourselves beyond our external identities and roles we play in society?
 
@@ -9,9 +9,10 @@ But what does it mean today and how can we reconnect with a concept that has lar
 # PART I
 
 ## "Origins"
-This doctrine of self-knowledge has been a common theme across cultures from the beginning of thought. Archaic religious texts, tribal and oral traditions stress the importance of a life with the "aim" of knowing oneself stress the importance of a life with the "aim" of knowing oneself. 
 
-*"Know thyself first; everything follows suit!"* - a [Vedic text reads:](https://tamilandvedas.com/tag/know-thyself).
+This doctrine of self-knowledge has been a common theme across cultures from the beginning of thought. Archaic religious texts and tribal and oral traditions stress the importance of a life with the "aim" of knowing oneself. 
+
+*"Know thyself first; everything follows suit!"* - a [Vedic text reads.](https://tamilandvedas.com/tag/know-thyself)
 *"Narada asked Sage Sanatkumara to teach him.
 Sanatkumara said: ‘Say what you know: I will say what you do not.'
 Narada said: *“Lord, I know Rig Veda, Yajur Veda, Sama Veda, Atharvana Veda, history and tradition called the fifth Veda, grammer, ritual, mathematics, astrology, mineralogy, logic, economics, physics, meta-physics, zoology, politics, astronomy, fine arts. Lord, yet these things are but elementary knowledge; I do not know the Self. I have heard from masters, that he who knows Self, goes beyond sorrow, I am lost in sorrow. Help me to go beyond.”*
@@ -22,18 +23,19 @@ In Buddhism, to know thyself is one of the [keys to enlightenment](https://icono
 
 In monotheistic religions, self-knowledge has also played a role in one’s spiritual path. 
 Maimonides (or Rambam), one of the old Jewish sages and great commentators on the [Mishna](https://en.wikipedia.org/wiki/Mishna) (the first written Torah after centuries of oral tradition), interpreted the first commandment as the law to "Know Yourself."
-Translation of [Maimonides on Ignorance of Self:](http://www.mesora.org/KnowThyself.html)
-
-<< REFERENCES KORAN AND SELF KNOWLEDGE >>
+Translation of [Maimonides on Ignorance of Self.](http://www.mesora.org/KnowThyself.html)
 
 Even in [Corinthians 13:5](https://www.kingjamesbibleonline.org/2-Corinthians-13-5/), self-knowledge is mentioned as the foundation of faith:
 *“Examine yourselves, whether ye be in the faith; prove your own selves. Know ye not your own selves, how that Jesus Christ is in you, except ye be reprobates?”*
 
-Who really first came up with this doctrine is hard to say, as the dating methods of older written texts are not that precise and oral traditions are even more difficult to date, many of the techniques quite oblique. However who or where the inquiry happened "first" is of no relevant at all. What is apparent however, is that the concept stretches from East to West and North to South. It was in Greece where the quest for knowledge of oneself began in the West.
+The concept of knowing oneself extends to Islamic scripture in the quest to comprehend human emotion and become closer to Allah. In the Hadith of the Prophet Muhammed, it is [written]( https://www.hubeali.com/online-books/online-english-books/bihar-al-anwaar/): 
+*“Whosoever knows himself knows his Lord.”* 
+
+Who really first came up with this doctrine is hard to say, as the dating methods of older written texts are not that precise and oral traditions are even more difficult to date, many of the techniques quite oblique. However who or where the inquiry came from "first" is of no relevance at all. What is important is that the concept stretches from East to West and North to South. 
 
 ## "From Ancient Greece, across the West"
 
-Greek philosophy laid the basis for Western thought, with the adage “Know Thyself” (γνῶθι σεαυτόν or *gnōthi seauton* in Greek), influencing thinkers from Thomas Hobbes to Benjamin Franklin. The [saying](https://arkintime.com/know-thyself/history/) was inscribed at the Temple of Apollo at Delphi (or the Oracle of Delphi) wrote Pausanias, and later adopted by Socrates and Plato. 
+It was in Greece where the quest for knowledge of oneself began in the West. Greek philosophy laid the basis for Western thought, with the adage “Know Thyself” (γνῶθι σεαυτόν or *gnōthi seauton* in Greek), influencing thinkers from Thomas Hobbes to Benjamin Franklin. The [saying](https://arkintime.com/know-thyself/history/) was inscribed at the Temple of Apollo at Delphi (or the Oracle of Delphi) wrote Pausanias, and later adopted by Socrates and Plato. 
 
 Centuries later, in 1651, Thomas Hobbes expanded on “Know Thyself” by introducing the concept of *nosce teipsum* "Read Thyself" in *[The Leviathan](https://web.archive.org/web/20101127130924/http://oregonstate.edu/instruct/phl302/texts/hobbes/leviathan-contents.html).* He argued that we can learn more by studying ourselves – our feelings, thoughts, motives, etc. - than looking to others.  
 
@@ -55,9 +57,9 @@ We are left with the question of where to go from here, and how we can incorpora
 
 ## "Practical application"
 
-There are more general [methods of getting to know ourselves](https://www.psychologytoday.com/intl/blog/changepower/201603/know-yourself-6-specific-ways-know-who-you-are), such as identifying and examining our values, interests, temperament, strengths, goals, etc. Attributes that make up some parts of our Self. What about questions of a different quality altogether ? Like how is Self related to others? is there Self without others? Or where and how does Self fit in to the cosmic (universal?) web? Sometimes it makes sense to turn to time-tested tribal, spiritual or esoteric approaches for a deeper understanding of the self. Not only Yogis are [carrying such traditions into the present day](https://yogashanti.com/focus/sept-12-knowing-yourself-tracey-toomey-mcquade-joyce-englander/#.YJqEXLUzY2w), also Shamans from the Amazonas and other tribal cultures with a rich plant medicine heritage are nowadays being introduced to the "western" world. 
+There are more general [methods of getting to know ourselves](https://www.psychologytoday.com/intl/blog/changepower/201603/know-yourself-6-specific-ways-know-who-you-are), such as identifying and examining our values, interests, temperament, strengths, goals, etc. - attributes that make up some parts of our Self. What about questions of a different quality altogether? Like how is the Self related to others? Is there a Self without others? Or where and how does the Self fit into the cosmic (universal?) web? Sometimes it makes sense to turn to time-tested tribal, spiritual or esoteric approaches for a deeper understanding of oneself. Not only Yogis are [carrying such traditions into the present day](https://yogashanti.com/focus/sept-12-knowing-yourself-tracey-toomey-mcquade-joyce-englander/#.YJqEXLUzY2w), also Shamans from the Amazonas and other tribal cultures with a rich plant medicine heritage are nowadays being introduced to the "Western" world. 
 
-In some Shamanic cultures a coming of age ritual often involved the ingestion of local plant hallucinogens in order for the individual to find it's place within the cosmic order. Shamans can be found in almost all tribal cultures. Sadly there are not that many living tribes left willing or able to communicate with the outside world. Especially little is known about the aboriginal tribes in Australia, whereas the Ahuyasca culture from the Amazon is becoming extremely popular. Searching for answers or to heal psychological traumas many individuals seek out Shamans for help. Since Shamans are know to be in contact with the spirit world, some even can channel life energy to heal psychological and psychosomatic wounds. However finding a real & practicing Shaman is not easily done, for - as sad as it is - copycats & charlatans offering silver bullet solutions for all problems are reportedly tainting the heritage.
+In some Shamanic cultures a coming of age ritual often involves the ingestion of local plant hallucinogens in order for the individual to find their place within the cosmic order. Shamans can be found in almost all tribal cultures. Sadly, there are not that many living tribes left willing or able to communicate with the outside world. In particular, little is known about the aboriginal tribes in Australia, whereas the Ahuyasca culture from the Amazon is becoming extremely popular. Searching for answers or to heal psychological traumas, many individuals seek out Shamans for help. Since Shamans are known to be in contact with the spirit world, some can even channel life energy to heal psychological and psychosomatic wounds. However, finding an authentic and practicing Shaman is not easily done, for - as sad as it is - copycats and charlatans offering silver bullet solutions for all problems are reportedly tainting the heritage.
 << INSERT TMCKENNA QUOTES FROM FOOD OF THE GOODS >>
 
 The practice of Svādhyāya (knowing oneself) is foundational in yogic traditions. Through meditation and asanas, one examines the mental, spiritual and physical self together as one.
@@ -68,8 +70,8 @@ In his 1980 book, [Man Know Thyself](https://www.lightparty.com/Spirituality/Man
 
 ## "Ending"
 
-But why since the beginning of thought have we had the urge to "Know Thyself?"  Might it be that within us lies an answer so powerful and life-changing, that it's difficult to imagine, let alone attempt to realise? Let us try together, while creating something meaningful along the way. What that might be? Think of an autonomous organisation for creators that is self sustaining/growing and managed without hierarchy by all its participants. 
-Soon there'll be more to read on said organisation. Meanwhile it's recommended to **read thy self**
+But why since the beginning of thought have we had the urge to "Know Thyself?"  Might it be that within us lies an answer so powerful and life-changing, that it's difficult to imagine, let alone attempt to realise? Let us try together, while creating something meaningful along the way. What that might be? Think of an autonomous organisation for creators that is self sustaining/growing and managed without hierarchy by all of its participants. 
+Soon there will be more to read on said organisation. Meanwhile it's recommended to **read thy self**
 
 *“He who knows others is wise; he who knows himself is enlightened.”*
 ― Lao Tzu
