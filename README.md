@@ -1,6 +1,9 @@
 # Contentwriting
 Content for the SecretDecks® brand
 
+## [⏩Project Kanban Board⏪](https://github.com/SecretDecks/Contentwriting/projects/1)
+
+## Content Overview
 1. [Know Thy Self](https://github.com/SecretDecks/Contentwriting/blob/main/Know-Thyself.md)
 2. What is Tarot (short)? What is an AAO (short)? How do they come together in SecretDecks?
 3. Why is Tarot important today?
