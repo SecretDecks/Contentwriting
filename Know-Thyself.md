@@ -22,10 +22,10 @@ In the Tao Te Ching, [Lao Tzu wrote](https://www.with.org/tao_te_ching_en.pdf), 
 In Buddhism, to know thyself is one of the [keys to enlightenment](https://iconoclasses.com/2019/09/20/socrates-and-buddha-know-thyself/): *“For the Buddha, ultimate reality is a process of self-realisation. Nobody is going to save you. The only person that can liberate you from your own pain and suffering is yourself, and the only person that is going to take the consequences of your own bad acts and misjudgment is also yourself.”*
 
 In monotheistic religions, self-knowledge has also played a role in one’s spiritual path. 
-Maimonides (or Rambam), one of the old Jewish sages and great commentators on the [Mishna](https://en.wikipedia.org/wiki/Mishna) (the first written Torah after centuries of oral tradition), interpreted the first commandment as the law to "Know Yourself."
+Maimonides (or Rambam), one of the old Jewish sages and great commentators on the [Mishna](https://en.wikipedia.org/wiki/Mishna) (the first written Torah after centuries of oral tradition), interpreted the first commandment as the law to "Know Yourself." [Maimonides on Ignorance of Self.](http://www.mesora.org/KnowThyself.html)
 
 The concept of knowing oneself extends to Islamic scripture in the quest to comprehend human emotion and become closer to Allah. In the Hadith of the Prophet Muhammed, it is [written]( https://www.hubeali.com/online-books/online-english-books/bihar-al-anwaar/): 
-*“Whosoever knows himself knows his Lord.”* Translation of [Maimonides on Ignorance of Self.](http://www.mesora.org/KnowThyself.html)
+*“Whosoever knows himself knows his Lord.”* Translation of 
 
 Even in [Corinthians 13:5](https://www.kingjamesbibleonline.org/2-Corinthians-13-5/), self-knowledge is mentioned as the foundation of faith:
 *“Examine yourselves, whether ye be in the faith; prove your own selves. Know ye not your own selves, how that Jesus Christ is in you, except ye be reprobates?”*
