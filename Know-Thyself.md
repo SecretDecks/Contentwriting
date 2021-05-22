@@ -52,24 +52,54 @@ In general though, we have abandoned the quest to turn inward and examine who we
 
 We are left with the question of where to go from here, and how we can incorporate this approach into our lives today.
 
+*"We may yet remember to behave, how to take our correct place in the connecting pattern, the seamless web of all things."* -- **T. McKenna** in *Food of the Goods*
+
+
 # PART II
 
 ## "Practical application"
 
-There are more general [methods of getting to know ourselves](https://www.psychologytoday.com/intl/blog/changepower/201603/know-yourself-6-specific-ways-know-who-you-are), such as identifying and examining our values, interests, temperament, strengths, goals, etc. - attributes that make up some parts of our Self. What about questions of a different quality altogether? Like how is the Self related to others? Is there a Self without others? Or where and how does the Self fit into the cosmic (universal?) web? Sometimes it makes sense to turn to time-tested tribal, spiritual or esoteric approaches for a deeper understanding of oneself. Not only Yogis are [carrying such traditions into the present day](https://yogashanti.com/focus/sept-12-knowing-yourself-tracey-toomey-mcquade-joyce-englander/#.YJqEXLUzY2w), also Shamans from the Amazonas and other tribal cultures with a rich plant medicine heritage are nowadays being introduced to the "Western" world. 
+There are more general [methods of getting to know ourselves](https://www.psychologytoday.com/intl/blog/changepower/201603/know-yourself-6-specific-ways-know-who-you-are), such as identifying and examining our values, interests, temperament, strengths, goals, etc. - attributes that make up some parts of our Self. 
 
-In some Shamanic cultures a coming of age ritual often involves the ingestion of local plant hallucinogens in order for the individual to find their place within the cosmic order. Shamans can be found in almost all tribal cultures. Sadly, there are not that many living tribes left willing or able to communicate with the outside world. In particular, little is known about the aboriginal tribes in Australia, whereas the Ahuyasca culture from the Amazon is becoming extremely popular. Searching for answers or to heal psychological traumas, many individuals seek out Shamans for help. Since Shamans are known to be in contact with the spirit world, some can even channel life energy to heal psychological and psychosomatic wounds. However, finding an authentic and practicing Shaman is not easily done, for - as sad as it is - copycats and charlatans offering silver bullet solutions for all problems are reportedly tainting the heritage.
-<< INSERT TMCKENNA QUOTES FROM FOOD OF THE GOODS >>
+What about questions of a different quality altogether? Like how is the Self related to others? Is there a Self without others? Or where and how does the Self fit into the cosmic (universal?) web? Sometimes it makes sense to turn to time-tested tribal, spiritual or esoteric approaches for a deeper understanding of oneself. 
+
+*"An understanding of how to achieve this balance (within the web of existence) lingers on in the forgotten and trampled cultures of the rain forests and deserts of the Third World, and in the reserves and reservations into which dominator cultures force their aboriginal people."* -- **T. McKenna** in *Food of the Goods (p.9)*
 
 The practice of Svādhyāya (knowing oneself) is foundational in yogic traditions. Through meditation and asanas, one examines the mental, spiritual and physical self together as one.
 
 Hindu sage [Ramana Maharshi](https://www.sriramanamaharshi.org/teachings/instructions/) focused much of his work on Vichara, "Self-enquiry", the constant attention to the inner awareness of "I" or "I am."
 
-In his 1980 book, [Man Know Thyself](https://www.lightparty.com/Spirituality/ManKnowThyself/ManKnowThyself.html), Raphael Ornstein M.D. gives insight into a practical path to self-knowledge that is very accessible to the analytical Western mind, involving Qabbalah, practical magic and also the Tarot. The tarot cards are often seen as a mirror of what you are experiencing in your life, encouraging self-reflection and contemplation. They can be a powerful tool to our modern-day quest to “Know Thyself.”
+Not only Yogis are [carrying such traditions into the present day](https://yogashanti.com/focus/sept-12-knowing-yourself-tracey-toomey-mcquade-joyce-englander/#.YJqEXLUzY2w), also Shamans from the Amazonas and other tribal cultures with a rich plant medicine heritage are nowadays being introduced to the "Western" world. 
+
+## Shamanism
+
+*"Shamanism is the practice of the Upper Paleolithic tradition of healing, divination and theatrical performance based on natural magic developed ten to fifty thousand years ago."* -- **T. McKenna** in *Food of the Goods (p.4)*
+
+In some Shamanic cultures a coming of age ritual often involves the ingestion of local plant hallucinogens in order for the individual to find their place within the cosmic order. Shamans can be found in almost all tribal cultures. Sadly, there are not that many living tribes left willing or able to communicate with the outside world. In particular, little is known about the aboriginal tribes in Australia, whereas the Ahuyasca culture from the Amazon is becoming extremely popular. Searching for answers or to heal psychological traumas, many individuals seek out Shamans for help. 
+
+*For the Shaman, the cosmos is a tale that becomes true as it is told and as it tells itself. This perspective implies that human imagination can seize the tiller of being in the world."*  -- **T. McKenna** in *Food of the Goods (p.7)*
+
+They are known to be in contact with the spirit world, some can channel life energy through songs to heal psychological and psychosomatic wounds, as Terence McKenna is writing *"Here is no ordinary song, but an icaro, a magical curing song that in our intoxicated and ecstatic state seems more like a tropical reef fish or animated silk scarf of many colors than a vocal performance The song is a visible manifestation of power, enfolding us and making us secure"*
+
+However, finding an authentic and practicing Shaman is not easily done, for - as sad as it is - copycats and charlatans offering silver bullet solutions for all problems are reportedly tainting the heritage.
+
+*"The writings of Carlos Castaneda and his imitators have resulted in a fad of "shamanic awareness" which, although muddled, has turned the shaman from a peripheral figure [...] into the media role model for full membership in neo-Archaic society."* -- **T. McKenna** in *Food of the Goods (p.12)*
+
+Nonetheless the shaman community is growing and more able minnds are joining the cause. 
+
+*"Psychedelic shamans now constitute a worldwide and growing subculture of hyperdimensional explorers, many of whom are scientifically sophisticated."* -- **T. McKenna** in *Food of the Goods (p.9)*
+
+## Pracitcal Magic 
+
+In his 1980 book, [Man Know Thyself](https://www.lightparty.com/Spirituality/ManKnowThyself/ManKnowThyself.html), Raphael Ornstein M.D. gives insight into a practical path to self-knowledge that is very accessible to the analytical Western mind, involving Qabbalah, practical magic and also the Tarot. The tarot cards are often seen as a mirror of what you are experiencing in your life, encouraging self-reflection and contemplation. They can be a powerful tool to our modern-day quest to “Know" or "Read" "Thy Self.”
 
 ## "Ending"
 
-But why since the beginning of thought have we had the urge to "Know Thyself?"  Might it be that within us lies an answer so powerful and life-changing, that it's difficult to imagine, let alone attempt to realise? Let us try together, while creating something meaningful along the way. What that might be? Think of an autonomous organisation for creators that is self sustaining/growing and managed without hierarchy by all its participants. How does this tie into Self Knowledge or something like Tarot?
+But why since the beginning of thought have we had the urge to "Know Thyself?"  Might it be that within us lies an answer so powerful and life-changing, that it's difficult to imagine, let alone attempt to realise? As Terence Mc Kenna put it graciously in his book "Food of the Goods": 
+*"We are completely unaware of the magical world of the shaman. It is quite simply stranger than we can suppose"*
+
+Let us try together to enter this magical world, while creating something meaningful in the bodily realm, along the way. 
+What that might be? Think of an autonomous organisation for creators that is self sustaining/growing and managed without hierarchy by all its participants. How does this tie into Self Knowledge or something like Tarot?
 The answers can soon be read here. Meanwhile it's recommended to **read thy self**.
 
 *“He who knows others is wise; he who knows himself is enlightened.”*
