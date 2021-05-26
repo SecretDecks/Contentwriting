@@ -1,6 +1,6 @@
-# “Know thy self”
+# “Know thy Self”
 
-What do ancient scrolls, sacred and sacral texts, scholars, thinkers and philosophers all have in common? They agree that to "know thy self" is the ultimate challenge and most pious project in life.
+What do ancient scrolls, sacred and sacral texts, scholars, thinkers and philosophers all have in common? They agree that to "know thy Self" is the ultimate challenge and most pious project in life.
 
 But what does it mean today and how can we reconnect with a concept that has largely been abandoned in the modern era, yet has the potential to help us understand ourselves beyond our external identities and roles we play in society?
 
@@ -10,7 +10,7 @@ But what does it mean today and how can we reconnect with a concept that has lar
 
 ## "Origins"
 
-This doctrine of self-knowledge has been a common theme across cultures from the beginning of thought. Archaic religious texts and tribal and oral traditions stress the importance of a life with the "aim" of knowing oneself. 
+This doctrine has been a common theme across cultures from the beginning of thought. Archaic religious texts and tribal and oral traditions stress the importance of a life with the "aim" of knowing oneself. 
 
 *"Know thyself first; everything follows suit!"* - a [Vedic text reads.](https://tamilandvedas.com/tag/know-thyself)
 *"Narada asked Sage Sanatkumara to teach him.
@@ -19,9 +19,9 @@ Narada said: *'Lord, I know Rig Veda, Yajur Veda, Sama Veda, Atharvana Veda, his
 
 In the Tao Te Ching, [Lao Tzu wrote](https://www.with.org/tao_te_ching_en.pdf), *“Knowing others is intelligence; knowing yourself is true wisdom. Mastering others is strength; mastering yourself is true power.”*
 
-In Buddhism, to know thy self is one of the [keys to enlightenment](https://iconoclasses.com/2019/09/20/socrates-and-buddha-know-thyself/): *“For the Buddha, ultimate reality is a process of self-realisation. Nobody is going to save you. The only person that can liberate you from your own pain and suffering is yourself, and the only person that is going to take the consequences of your own bad acts and misjudgment is also yourself.”*
+In Buddhism, it's one of the [keys to enlightenment](https://iconoclasses.com/2019/09/20/socrates-and-buddha-know-thyself/): *“For the Buddha, ultimate reality is a process of self-realisation. Nobody is going to save you. The only person that can liberate you from your own pain and suffering is yourself, and the only person that is going to take the consequences of your own bad acts and misjudgment is also yourself.”*
 
-In monotheistic religions, self-knowledge has also played a role in one’s spiritual path. 
+In monotheistic religions, knowing thy Self has also played a role in one’s spiritual path. 
 Maimonides (or Rambam), one of the old Jewish sages and great commentators on the [Mishna](https://en.wikipedia.org/wiki/Mishna) (the first written Torah after centuries of oral tradition), interpreted the first commandment as the law to "Know Yourself." [Maimonides on Ignorance of Self.](http://www.mesora.org/KnowThyself.html)
 
 The concept extends to Islamic scripture in the quest to comprehend human emotion and become closer to Allah. In the [Hadith of the Prophet Muhammed](https://www.hubeali.com/online-books/online-english-books/bihar-al-anwaar/), it is written: *“Whosoever knows himself knows his Lord.”* 
@@ -32,19 +32,19 @@ Who really first came up with this doctrine is hard to say, as the dating method
 
 ## "From Ancient Greece, across the West"
 
-Greek philosophy laid the basis for Western thought, including the introduction of [*gnōthi seauton* (know thy self)](https://arkintime.com/know-thyself/history/), which was inscribed at the Temple of Apollo at Delphi (or the Oracle of Delphi). The adage was later adopted by Socrates and Plato. 
+Greek philosophy laid the basis for Western thought, including the introduction of [*gnōthi seauton* (know thy Self)](https://arkintime.com/know-thyself/history/), which was inscribed at the Temple of Apollo at Delphi (or the Oracle of Delphi). The adage was later adopted by Socrates and Plato. 
 
-In 1651, Thomas Hobbes expanded on the concept with the Latin phrase *nosce teipsum* (read thy self) in *[The Leviathan](https://web.archive.org/web/20101127130924/http://oregonstate.edu/instruct/phl302/texts/hobbes/leviathan-contents.html).* He argued that we can learn more by studying ourselves - our feelings, thoughts, motives, etc. - than looking to others.  
+In 1651, Thomas Hobbes expanded on the concept with the Latin phrase *nosce teipsum* (read thy Self) in *[The Leviathan](https://web.archive.org/web/20101127130924/http://oregonstate.edu/instruct/phl302/texts/hobbes/leviathan-contents.html).* He argued that we can learn more by studying ourselves - our feelings, thoughts, motives, etc. - than looking to others.  
 
 *"But to teach us that for the similitude of the thoughts and passions of one man, to the thoughts and passions of another, whosoever looketh into himself and considereth what he doth when he does think, opine, reason, hope, fear, etc., and upon what grounds; he shall thereby read and know what are the thoughts and passions of all other men upon the like occasions."*
 
 Benjamin Franklin elucidated the [complexity of knowing oneself](https://books.google.de/books?id=MYkTAQAAMAAJ&dq=Autobiography,+Sayings+of+Poor+Richard,+Letters&pg=PA195&redir_esc=y#v=onepage&q&f=false), comparing it to the impenetrability of steel and diamonds: *"There are three Things extremely hard, Steel, a Diamond, and to know one's self."*
 
-While the importance of self-inquiry has waned in recent years, we can see a [few references](https://www.youtube.com/watch?v=kl0rqoRbzzU) to the age-old quest in popular culture. In the *Matrix* and *Matrix Revolutions*, the Wachowskis included *temet nosce* (know thy self) above the Oracle’s door, giving a nod to the Ancient Greeks and subsequent philosophers. 
+While the importance of self-inquiry has waned in recent years, we can see a [few references](https://www.youtube.com/watch?v=kl0rqoRbzzU) to the age-old quest in popular culture. In the *Matrix* and *Matrix Revolutions*, the Wachowskis included *temet nosce* (know thy Self) above the Oracle’s door, giving a nod to the Ancient Greeks and subsequent philosophers. 
 
 ## “A spiritual & philosophical drought”
 
-We can see that throughout both Western and Eastern traditions - from the Vedas to monotheistic teachings, to Western philosophy - to know thy self has been emphasised as a way to enrich our lives and find purpose.
+We can see that throughout both Western and Eastern traditions - from the Vedas to monotheistic teachings, to Western philosophy - to know thy Self has been emphasised as a way to enrich our lives and find purpose.
 
 In general though, we have abandoned the quest to turn inward and examine who we really are, instead distracting ourselves in nearly any way possible. Why have we stopped listening to the wisdom imparted to us by a rich heritage of thought that spans cultures and traditions, and started looking for answers outside of ourselves? Is it due to our hardened dualistic thinking patterns, separating mind from matter, ourselves from the other? Would it help to break up these patterns from time to time and acquire a more holistic view or experience? 
 
@@ -63,7 +63,7 @@ What about questions of a different quality altogether? Like how is the Self rel
 
 *"An understanding of how to achieve this balance (within the web of existence) lingers on in the forgotten and trampled cultures of the rain forests and deserts of the Third World, and in the reserves and reservations into which dominator cultures force their aboriginal people."* - T. McKenna [*Food of the Gods (p.9)*](http://sociology.morrisville.edu/readings/SOCI270/FoodOfTheGods-McKenna-p8-14.pdf)
 
-The practice of *Svādhyāya* (knowing oneself) is foundational in yogic traditions. Through meditation and asanas, one examines the mental, spiritual and physical self together as one.
+The practice of *Svādhyāya* (knowing oneself) is foundational in yogic traditions. Through meditation and asanas, one examines the mental, spiritual and physical Self together as one.
 
 Hindu sage [Ramana Maharshi](https://www.sriramanamaharshi.org/teachings/instructions/) focused much of his work on *Vichara* (self-enquiry), the constant attention to the inner awareness of "I" or "I am."
 
@@ -90,16 +90,16 @@ Nonetheless, the shaman community is growing and more able minnds are joining th
 
 ## Pracitcal Magic 
 
-In his 1980 book, [*Man Know Thyself*](https://www.lightparty.com/Spirituality/ManKnowThyself/ManKnowThyself.html), Raphael Ornstein M.D. gives insight into a practical path to self-knowledge that is very accessible to the analytical Western mind, involving Qabbalah, practical magic and also the Tarot. The Tarot cards are often seen as a mirror of what you are experiencing in your life, encouraging self-reflection and contemplation. They can be a powerful tool to our modern-day quest to know or read thy self.
+In his 1980 book, [*Man Know Thyself*](https://www.lightparty.com/Spirituality/ManKnowThyself/ManKnowThyself.html), Raphael Ornstein M.D. gives insight into a practical path to know thy Self that is very accessible to the analytical Western mind, involving Qabbalah, practical magic and also the Tarot. The Tarot cards are often seen as a mirror of what you are experiencing in your life, encouraging self-reflection and contemplation. They can be a powerful tool to our modern-day quest to know or read thy Self.
 
 ## "Ending"
 
-But why since the beginning of thought have we had the urge to know thy self?  Might it be that within us lies an answer so powerful and life-changing, that it's difficult to imagine, let alone attempt to realise? As Terence McKenna put it graciously in his book *Food of the Gods*: *"We are completely unaware of the magical world of the shaman. It is quite simply stranger than we can suppose."*
+But why since the beginning of thought have we had the urge to know thy Self?  Might it be that within us lies an answer so powerful and life-changing, that it's difficult to imagine, let alone attempt to realise? As Terence McKenna put it graciously in his book *Food of the Gods*: *"We are completely unaware of the magical world of the shaman. It is quite simply stranger than we can suppose."*
 
 Let us try together to enter this magical world, while creating something meaningful in the bodily realm along the way. 
-What that might be? Think of an autonomous organisation for creators that is self sustaining/growing and managed without hierarchy by all its participants. How does this tie into self-knowledge or something like the Tarot?
+What that might be? Think of an autonomous organisation for creators that is self-sustaining/growing and managed without hierarchy by all its participants. How does this tie into self-knowledge or something like the Tarot?
 
-The answers can soon be found here. Meanwhile it's recommended to **read thy self**.
+The answers can soon be found here. Meanwhile it's recommended to **read thy Self**.
 
 *“He who knows others is wise; he who knows himself is enlightened.”*
 ― Lao Tzu
