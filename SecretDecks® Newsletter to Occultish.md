@@ -36,5 +36,6 @@ It’s a lot of information, but we seek to create an autonomous organisation by
 
 
 All the very best,
+
 SecretDecks® Founding Team
 
