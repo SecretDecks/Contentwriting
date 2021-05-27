@@ -29,8 +29,12 @@ Think digital collectibles in the form of Tarot cards, conjured up by creators a
 In order to generate interest and value, as well as motivate participants and test the ACO concept in a real world environment, it is required to have some value-added mechanism. Thus a small percentage (appr. 0.5%-1%) of the collectible sales will flow into the ACO network. 
 
 ### Is there a goal?
-The concept works if at least 85% of sale revenue is received by the creator(s) directly and more than 12 drops of decks have been successfully facilitated.
+The concept works if at least 85% of sales revenue is received by the creator(s) directly and more than 12 drops of decks have been successfully facilitated.
 
 ## Thank you for taking the time to read this! 
 It’s a lot of information, but we seek to create an autonomous organisation by creators, for creators. Thus, transparency and the sharing of information are key. Your input also plays a critical role in laying the groundwork to build such an organisation, so we welcome any and all questions you may have. 
+
+
+All the very best,
+SecretDecks® Founding Team
 
