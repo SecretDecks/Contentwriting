@@ -35,6 +35,7 @@ The concept works if at least 85% of sales revenue is received by the creator(s)
 It’s a lot of information, but we seek to create an autonomous organisation by creators, for creators. Thus, transparency and the sharing of information are key. Your input also plays a critical role in laying the groundwork to build such an organisation, so we welcome any and all questions you may have. 
 
 
+
 All the very best,
 
 SecretDecks® Founding Team
