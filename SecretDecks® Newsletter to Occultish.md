@@ -24,7 +24,7 @@ While the Tarot is typically experienced in-person, this new platform won’t ta
 An organisational layer (network) of groups of creators clustered around an idea. Within this network they can autonomously coordinate curation, voting (consensus-building), funding, creation, as well as distribution and sales of digital assets. All supported by a token (that grows in value over time, as the network grows and tokens are bought and burned).
 
 ## How do they come together?
-Think digital collectibles in the form of Tarot cards, conjured up by creators across the globe and distributed and utlised within an ecosystem of SecretDecks® apps that work together to fuel demand for the collectible cards and the experiences they entail..
+Think digital collectibles in the form of Tarot cards, conjured up by creators across the globe and distributed and utlised within an ecosystem of SecretDecks® apps that work together to fuel demand for the collectible cards and the experiences they entail.
 
 In order to generate interest and value, as well as motivate participants and test the ACO concept in a real world environment, it is required to have some value-added mechanism. Thus a small percentage (appr. 0.5%-1%) of the collectible sales will flow into the ACO network. 
 
