@@ -1,3 +1,10 @@
+[![GitHub open issues](https://img.shields.io/github/issues/SecretDecks/Contentwriting?style=flat-square)](https://github.com/SecretDecks/Contentwriting/issues)
+[![GitHub closed issues](https://img.shields.io/github/issues-closed-raw/SecretDecks/Contentwriting?style=flat-square)](https://github.com/SecretDecks/Contentwriting/issues?q=is%3Aissue+is%3Aclosed)
+[![GitHub pull requests](https://img.shields.io/github/issues-pr/SecretDecks/Contentwriting)](https://github.com/SecretDecks/Contentwriting/pulls)
+[![GitHub closed pull requests](https://img.shields.io/github/issues-pr-closed/SecretDecks/Contentwriting)](https://github.com/SecretDecks/Contentwriting/pulls?q=is%3Apr+is%3Aclosed)
+[![GitHub milestones](https://img.shields.io/github/milestones/open/SecretDecks/Contentwriting?style=flat-square)](https://github.com/SecretDecks/Contentwriting/milestones)
+
+
 # Contentwriting
 Content for the SecretDecks® brand
 
