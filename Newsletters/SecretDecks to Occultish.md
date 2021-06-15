@@ -1,9 +1,14 @@
 ## Intro
 Calling all creators! SecretDecks® looks to you if you’ve ever reinterpreted the Tarot and made your own deck... or perhaps you feel inspired to do so? 
-Are you an artist? Build a new global fanbase, make a living off your digital art without any middlemen, as well as own & manage your copyrights!
-What if you're not an aritst? Join us anyway and find out how you can help us to help each other and what you can get in return! 
+
+### Are you an artist? Do you like Tarot?
+Build a new global fanbase, make a living off your art without any middlemen and through the medium of your choice, as well as own & manage your copyrights!
+
+### What if you're not an aritst? 
+Join us anyway and find out how you can help us to help each other and what you can get in return! 
 There's enough to do for everyone, as we're building the future of decentralised collaboration and autonomus organisation. 
 
+## Tell me more.
 We want to give you the chance to showcase your recreation and enable you to sell your Tarot art as digital collectibles in a new, innovative way. It’s a way we believe not only has huge momentum now - it also builds on a technology that is rocketing into the future while allowing art and its creators more autonomy. 
 
 SecretDecks® builds on blockchain technology with an autonomous organisation. Your art would be turned into a cryptographically-secure token called an NFT. The copyright will always remain with you, the creator(s). 
