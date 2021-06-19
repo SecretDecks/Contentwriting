@@ -1,11 +1,11 @@
-## Intro
+## Attention!
 Calling all creators! SecretDecks® looks to you if you’ve ever reinterpreted the Tarot and made your own deck... or perhaps you feel inspired to do so? 
 
 ### Are you an artist? Do you like Tarot?
-Build a new global fanbase, make a living off your art without any middlemen and through the medium of your choice, as well as own & manage your copyrights!
+Help us to help you build a new global fanbase, make a living off your art without any middlemen through the medium of your choice and manage your copyrights!
 
 ### What if you're not an aritst? 
-Join us anyway and find out how you can help us to help each other and what you can get in return! 
+Join us anyway. Help us to help each other.
 There's enough to do for everyone, as we're building the future of decentralised collaboration and autonomus organisation. 
 
 ## Tell me more.
