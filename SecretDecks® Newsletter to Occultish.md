@@ -1,7 +1,7 @@
 ## Calling all creators! 
 SecretDecks® looks to you if you’ve ever reinterpreted the Tarot and made your own deck... or perhaps you feel inspired to do so? 
 ## Are you an artist?  
-Build a new global fanbase, make a living off your digital art without any middlemen, as well as own & manage your copyrights!
+Build a new global fanbase, make a living off your digital art without any middlemen and through the medium of your choice, as well as own and manage your copyrights!
 ## What if you're not an aritst? 
 Join us anyway and discover how we can help each other build an ecosystem of mutual abundance. 
 There's enough to do for everyone, as we're building the future of decentralised collaboration and autonomus organisation. 
@@ -12,7 +12,7 @@ We want to give you the chance to showcase and sell your unique Tarot recreation
 SecretDecks® builds on blockchain technology with an autonomous organisation. Your art would be turned into a cryptographically-secure token called an NFT. The copyright will always remain with you, the creator(s). 
 
 ## What is a digital collectable/NFT ?
-Each NFT (Non-Fungible Token) contains unique information (metadata), like the creator's digital fingerprint and a certificate of authenticity, that makes it both distinct from any other NFT and easily verifiable. And it means that the creation and circulation of fake collectibles is distinctively more difficult, as all interaction on a blockchain can be verified and traced back to the original creator. Similar to selling a painting outside a gallery, it will be a personal exchange between buyer and artist. 
+Each NFT (Non-Fungible Token) contains unique information (metadata), like the creator's digital fingerprint and a certificate of authenticity that makes it both distinct from any other NFT and easily verifiable. And it means that the creation and circulation of fake collectibles is distinctively more difficult, as all interaction on a blockchain can be verified and traced back to the original creator. Similar to selling a painting outside a gallery, it will be a personal exchange between buyer and artist. 
 
 How does an NFT built on the blockchain differ from simply selling it from a website on the internet? There is no website where you can sell unique digital art pieces without the need to set up a payment gateway. Additionally, selling art as an NFT enables lifelong royalties. Each time a digital artwork is resold, the artist receives a royalty. 
 
