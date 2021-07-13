@@ -1,20 +1,22 @@
 ## Calling all creators! 
 SecretDecks® looks to you if you’ve ever reinterpreted the Tarot and made your own deck... or perhaps you feel inspired to do so? 
+
 ## Are you an artist?  
-Build a new global fanbase, make a living off your digital art without any middlemen and through the medium of your choice, as well as own and manage your copyrights!
-## What if you're not an aritst? 
+Build a new global fanbase and make a living off your digital art without any middlemen and through the medium of your choice, as well as own and manage your copyrights!
+
+## What if you're not an artist? 
 Join us anyway and discover how we can help each other build an ecosystem of mutual abundance. 
 There's enough to do for everyone, as we're building the future of decentralised collaboration and autonomus organisation. 
 
 ## Tell me more.
-We want to give you the chance to showcase and sell your unique Tarot recreation as digital collectibles in a fresh, innovative way. It’s a method we believe not only has huge momentum now - it also builds on a technology that is rocketing into the future while allowing art and its creators more autonomy. 
+We want to give you the chance to showcase and sell your unique Tarot recreations as digital collectibles in a fresh, innovative way. It’s a method we believe not only has huge momentum now, but also builds on a technology that is rocketing into the future while allowing art and its creators more autonomy. 
 
 SecretDecks® builds on blockchain technology with an autonomous organisation. Your art would be turned into a cryptographically-secure token called an NFT. The copyright will always remain with you, the creator(s). 
 
-## What is a digital collectable/NFT ?
+## What is a digital collectable/NFT?
 Each NFT (Non-Fungible Token) contains unique information (metadata), like the creator's digital fingerprint and a certificate of authenticity that makes it both distinct from any other NFT and easily verifiable. And it means that the creation and circulation of fake collectibles is distinctively more difficult, as all interaction on a blockchain can be verified and traced back to the original creator. Similar to selling a painting outside a gallery, it will be a personal exchange between buyer and artist. 
 
-How does an NFT built on the blockchain differ from simply selling it from a website on the internet? There is no website where you can sell unique digital art pieces without the need to set up a payment gateway. Additionally, selling art as an NFT enables lifelong royalties. Each time a digital artwork is resold, the artist receives a royalty. 
+How does an NFT built on the blockchain differ from simply selling it on a website on the internet? There is no website where you can sell unique digital art pieces without the need to set up a payment gateway. Additionally, selling art as an NFT enables lifelong royalties. Each time a digital artwork is resold, the artist receives a royalty. 
 
 ## Not a digital artist? 
 No worries, we will connect you with creative minds who are technically well-versed, in a remote incubator program! You can find collaborators to create new decks or digitise existing ones that you’ve already created. We’re here to help make this process as smooth as possible and here to answer any questions that may come up, now or in the future.
@@ -32,13 +34,14 @@ An organisational layer (network) of groups of creators clustered around an idea
 ## How do they come together?
 Think digital collectibles in the form of Tarot cards, conjured up by creators across the globe and distributed and utlised within an ecosystem of SecretDecks® apps that work together to fuel demand for the collectible cards and the experiences they entail.
 
-In order to generate interest and value, as well as motivate participants and test the ACO concept in a real world environment, it is required to have some value-added mechanism. Thus a small percentage (appr. 0.5%-1%) of the collectible sales will flow into the ACO network. 
+In order to generate interest and value, as well as motivate participants and test the ACO concept in a real world environment, it is required to have some value-added mechanism. Thus, a small percentage (appr. 0.5%-1%) of the collectible sales will flow into the ACO network. 
 
 ### Is there a goal?
 The concept works if at least 85% of sales revenue is received by the creator(s) directly and more than 12 drops of decks have been successfully facilitated.
 
 ## Thank you for taking the time to read this! 
 It’s a lot of information, but we seek to create an autonomous organisation by creators, for creators. Thus, transparency and the sharing of information are key. Your input also plays a critical role in laying the groundwork to build such an organisation, so we welcome any and all questions you may have. 
+
 Please join the conversation on our [Discord chat server](https://discord.gg/Ww85r7yJMk) or send us an e-owl: info@secretdecks.com
 
 In case you really want to read more text, you can visit our [blog publications on Medium](https://medium.com/@secretdecks)
